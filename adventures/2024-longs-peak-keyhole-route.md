@@ -1,6 +1,6 @@
 ## Longs Peak (Aug 17, 2024)
 
-[Strava Link]
+[Strava Link](https://www.strava.com/activities/12173606739)
 
 Reviews and descriptions are quite varied, suggesting needing to carry as much as 4L of water and taking as much as 10-15 hours. In truth, for reasonably fit ultra runners / hikers and with dry conditions, I'd estimate more like:
 
