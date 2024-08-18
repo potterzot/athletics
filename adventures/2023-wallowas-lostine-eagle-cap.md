@@ -2,7 +2,7 @@
 
 Possibly the best trip to date. Views from Eagle Cap are incredible, and the alpine camping is unrivaled. Off the beaten trails there are few people.
 
-### Strava Links
+### Activities
 
 #### [Day 1: Bowman/Francis Trail](https://www.strava.com/activities/9374653664)
 
@@ -44,7 +44,7 @@ In 1930, the Eagle Cap was established as a primitive area. It was designated as
 
 __What makes the thumping noise?__
 
-Likely a [ruffed grouse](https://www.youtube.com/watch?v=MVfiIp3QGs4).
+Likely a [ruffled grouse](https://www.youtube.com/watch?v=MVfiIp3QGs4).
 __Is the pink snow a neurotoxin?__
 
 Apparently [not](https://www.smithsonianmag.com/smart-news/this-pink-snow-is-not-what-you-think-it-is-9651061/), but it may contain some things that aren't great for you and you shouldn't eat it.
